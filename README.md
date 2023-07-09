@@ -1,4 +1,4 @@
 
-### تابع : [TEPTHON](https://t.me/Tepthon) ###
+### تابع : [xXStrem](https://t.me/xXStrem) ###
 
-![TEPTHOn](https://te.legra.ph/file/90d376aa72fde4c601cdd.jpg)
+![xXStrem](https://te.legra.ph/file/90d376aa72fde4c601cdd.jpg)
